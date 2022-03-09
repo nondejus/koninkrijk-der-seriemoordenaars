@@ -1,2 +1,12 @@
 # koninkrijk-der-seriemoordenaars
+
 1992-2022
+
+# psychiater
+https://nl.wikipedia.org/wiki/Psychiater
+
+# genocide
+https://en.wikipedia.org/wiki/Genocide
+
+# staat der nederlanden
+https://nl.wikipedia.org/wiki/Staat_der_Nederlanden
